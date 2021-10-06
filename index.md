@@ -2,3 +2,4 @@
 
 I'm thinking of running for President.
 
+What do you say Mr Gore?
